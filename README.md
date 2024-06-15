@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @VIXI223
+- 👋 Hi, I’m @VIXI
 - 👀 I’m interested in information.
 - 🌱 I’m currently seeking... networking maybe
 - 💞 I’m looking to collaborate on ... finding new information together
